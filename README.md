@@ -2,6 +2,8 @@
 
  +1(667)-379-5556\| <s219@umbc.edu>\| <https://www.linkedin.com/in/saathyak-kasuganti-241440190/>
 
+  <img src="picture.jpeg" alt="headshot" width="150"/>
+
 <ins>**Education**</ins>
 
 **University of Maryland, Baltimore County, Baltimore, MD**
